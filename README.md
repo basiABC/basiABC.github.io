@@ -1,2 +1,2 @@
 # basiABC.github.io
-个人网店
+个人网点
